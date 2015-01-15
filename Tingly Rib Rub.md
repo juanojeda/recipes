@@ -7,10 +7,10 @@
 - 1 tbsp cumin seed
 - 1 tbsp coriander seed
 - 1 tbsp fennel seed
-- 1 tsp ancho chilli powder
-- 1 tsp chipotle chilli powder
-- 1 tsp cayenne chilli powder
-- 1 tsp chilli flakes
+- 1/2 tsp ancho chilli powder
+- 1/2 tsp chipotle chilli powder
+- 1/2 tsp cayenne chilli powder
+- 1/2 tsp chilli flakes
 
 ## Method
 
