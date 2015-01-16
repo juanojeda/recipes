@@ -17,3 +17,7 @@
 Add ingredients to a mortar and pestle, and grind until you get the consistency you want [^1].
 
 [^1]: I like to keep my rubs fairly coarse to create more of an interesting bark, I just break up the seeds enough so they don't stick in your teeth.
+
+## Notes
+
+- Try adding smoked paprika
