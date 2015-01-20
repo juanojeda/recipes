@@ -27,7 +27,7 @@ Serves 4-6
 1. Combine the base salad ingredients in a bowl, and mix roughly.
 2. Beat the eggs with a stick mixer, hand mixer or food processor until well combined, approx. 2 mins.
 3. While continuing to beat the eggs, begin to add the oil in a slow, thin stream.
-4. When the mayonnaise begins to reach a thick consistency with soft peaks, slowly add the lime juice.
+4. When the mayonnaise begins to reach a thick consistency with soft peaks, slowly add the lime juice until you reach a thin mayonnaise consistency.
 5. Add the garlic, coriander and seasoning, and pulse until well combined.
 6. Add dressing to base ingredients, one tablespoon at a time, and combine until you reach the desired coverage.
 If the coleslaw is a bit clumpy, add a bit more lemon juice and oil, and season to taste. 
