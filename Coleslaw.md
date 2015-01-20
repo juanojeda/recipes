@@ -30,6 +30,6 @@ Serves 4-6
 4. When the mayonnaise begins to reach a thick consistency with soft peaks, slowly add the lime juice until you reach a thin mayonnaise consistency.
 5. Add the garlic, coriander and seasoning, and pulse until well combined.
 6. Add dressing to base ingredients, one tablespoon at a time, and combine until you reach the desired coverage.
-If the coleslaw is a bit clumpy, add a bit more lemon juice and oil, and season to taste. 
+If the coleslaw is a bit clumpy, add a bit more lime juice and oil, and season to taste. 
 
 [^1]: This is a guesstimation; you may need to adjust the oil amount.
