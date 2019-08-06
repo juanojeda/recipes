@@ -25,12 +25,13 @@ course: dessert, snack
 3. Mix in the egg until combined, then add in the peanut butter and vanilla extract. Mix well.
 4. Whisk the dry ingredients together then add to the butter mixture, mixing together thoroughly.
 5. Mix in the chocolate chips by hand until evenly distributed throughout the dough.
-6. Using an ice cream scoop, fill the scoop until it's full, flattening the bottom until it's level with the straight edge of the scoop.
-7. Place by rounded cookie scoop onto parchment lined baking sheets.
-8. Bake in the oven for 14-15 minutes, or until golden brown all over.
-9. Remove from the oven.
-10. The cookies should still be in a dome shape.
-11. Using a flat spatula or egg flipper etc, press each cookie down until evenly flat. They should be about 1/2 inch to 3/4 inch thick.
-12. Leave the cookies on the trays to cool completely after flattening.
-13. Enjoy your super thick and chewy peanut butter chocolate chip cookies!
-14. Store in a container for 3-5 days, but I doubt they will last that long.
+6. Scoop out mixture onto a piece of parchment paper, and form into an even log, about 2-3in in diameter. Place in freezer until firm but not frozen.
+7. From frozen, chop pucks or balls from the log about 2-3in wide (roughly ball-shaped).
+8. Place by rounded cookie dough onto parchment lined baking sheets.
+9. Bake in the oven for 15-18 minutes, or until golden brown all over.
+10. Remove from the oven.
+11. The cookies should still be in a dome shape.
+12. Using a flat spatula or egg flipper etc, press each cookie down until evenly flat. They should be about 1/2 inch to 3/4 inch thick.
+13. Leave the cookies on the trays to cool completely after flattening.
+14. Enjoy your super thick and chewy peanut butter chocolate chip cookies!
+15. Store in a container for 3-5 days, but I doubt they will last that long.
